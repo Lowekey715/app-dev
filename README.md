@@ -1,4 +1,4 @@
-## My Favorite Movie, **Dr. Stone**
+## My Favorite Movie, *Dr. Stone*
 
 > *“This is exhilarating! Science is just so much fun!”* – **Senku Ishigami**
 
